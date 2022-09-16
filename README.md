@@ -7,3 +7,5 @@ ilay boky mila averina @ herinandro
 2 juillet rapitso dikany efa manan ny planning ity volana ity
 
 Recap date 16 sept 2022
+Zavatra vie 
+3 objectifs sur 10
